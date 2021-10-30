@@ -13,7 +13,6 @@ NCAAF: Michigan vs Michigan State week 9 live stream watch online TV channel
   The Michigan vs Michigan State rivalry goes all the way back to 1898, and the two schools have been competing for the Paul Bunyan Trophy for 68 of those years. Michigan holds the overall edge in the rivalry, 71-37-5, but over the last 10 years it’s been Michigan State winning six of 10, including in 2020.
 
 Whether you’re pulling for the Wolverines or the Spartans, read below for a brief matchup preview and how to watch Michigan vs Michigan State on Saturday, Oct. 30.
-https://readthedocs.org/dashboard/import/
 Michigan vs Michigan State matchup preview
 Both Michigan and Michigan State were outside the top 25 AP rankings at the start of the season, but they have steadily made their way up to where Michigan now sits at No. 6 and Michigan State is just behind them at No. 8. So how did they get there?
 
